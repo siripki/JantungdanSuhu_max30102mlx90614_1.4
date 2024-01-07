@@ -1,0 +1,2 @@
+# JantungdanSuhu_max30102mlx90614_1.4
+ JantungdanSuhu_max30102mlx90614_1.4
